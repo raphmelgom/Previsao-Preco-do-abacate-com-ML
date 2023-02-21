@@ -1,10 +1,10 @@
 # Contexto
 
-É um fato bem conhecido que os Millenials AMAM torradas de abacate. Também é um fato bem conhecido que quase todos os Millenials vivem na casa dos pais.
+É um fato bem conhecido que os Millenials AMAM torradas de abacate. Também é um fato bem conhecido que quase todos os Millennials vivem na casa dos pais.
 
 Claramente, eles não estão comprando uma casa porque estão gastando muito dinheiro em torradas de abacate!
 
-Mas talvez haja esperança... se um Millenial pudesse encontrar uma cidade com abacates baratos, poderia viver o sonho americano dos Millenials.
+Mas talvez haja esperança... se um Millenial pudesse encontrar uma cidade com abacates baratos, poderia viver o sonho americano dos Millennials.
 
 ## Sumário
 

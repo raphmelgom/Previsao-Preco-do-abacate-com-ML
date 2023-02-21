@@ -4,7 +4,7 @@
 
 Claramente, eles não estão comprando uma casa porque estão gastando muito dinheiro em torradas de abacate!
 
-Mas talvez haja esperança... se um Millenial pudesse encontrar uma cidade com abacates baratos, poderia viver o sonho americano dos Millennials.
+Mas talvez haja esperança... se um Millennial pudesse encontrar uma cidade com abacates baratos, poderia viver o sonho americano dos Millennials.
 
 ## Sumário
 

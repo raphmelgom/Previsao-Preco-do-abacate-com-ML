@@ -1,6 +1,6 @@
 # Contexto
 
-É um fato bem conhecido que os Millenials AMAM torradas de abacate. Também é um fato bem conhecido que todos os Millenials vivem no porão de seus pais.
+É um fato bem conhecido que os Millenials AMAM torradas de abacate. Também é um fato bem conhecido que todos os Millenials vivem na casa dos pais.
 
 Claramente, eles não estão comprando uma casa porque estão gastando muito dinheiro em torradas de abacate!
 
